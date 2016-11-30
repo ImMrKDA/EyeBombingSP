@@ -43,22 +43,29 @@ Some people might see first a curtain, other people might see first a man playin
 
 ![old couple3](Screen Shot 2016-11-30 at 21.54.09.png)  
   
-  
 
-Now it's time to show the Eyebombing pictures and I've taken for this project. 
+##Eyebombing pictures. 
 
-The first image is meant to be a face. The eyes are the holes of the table that we use in class to put our cables through them so we can reach the plug in the floor and charge our laptops. The nose is a black plug that is facing  up so it gives the sense of being a nose. The mouth is a simple piece of paper, it gives the sense of being an open mouth or a big mouth.   
+Now it's time to show the Eyebombing pictures and I've taken for this project: 
+
+* The first image is meant to be a face. The eyes are the holes of the table that we use in class to put our cables through them so we can reach the plug in the floor and charge our laptops. The nose is a black plug that is facing  up so it gives the sense of being a nose. The mouth is a simple piece of paper, it gives the sense of being an open mouth or a big mouth.   
 
 ![first image eyebombing](IMG_0088.jpg)
 
-The second image gives an aspect of a old man (well, that's what I think). Being the eyes the two locks and the mouth is supposed to be very small or hidden by the _moustache_ , which is interpretated by the plastic. 
+* The second image gives an aspect of a old man (well, that's what I think). Being the eyes the two locks and the mouth is supposed to be very small or hidden by the _moustache_ , which is interpretated by the plastic. 
 
 ![second image eyebombing](IMG_0089.jpg) 
 
-Here we've got a case where is probably harder to identify the elements of a face than the other two pictures above. We can clearly see the eyes that are represented by the two blue stickers that have got the message "Fire Door Keep Locked" in them. Now, is the lock below the mouth or the nose? I actually don't know, I guess you can interpret it as you wish. In my case I would say it's a really small mouth which will make this face with no nose. Such a shame. 
+* Here we've got a case where is probably harder to identify the elements of a face than the other two pictures above. We can clearly see the eyes that are represented by the two blue stickers that have got the message "Fire Door Keep Locked" in them. Now, is the lock below the mouth or the nose? I actually don't know, I guess you can interpret it as you wish. In my case I would say it's a really small mouth which will make this face with no nose. Such a shame. 
 
 ![third image eyebombing](IMG_0090.jpg)
 
+Now we've got an image that is made by three windows from the entrance wall of Ravensbourne. I think it's quite easy to see a face here, two big eyes with an open mouth and again with no nose. 
 
+![fourth image eyebombing](IMG_0091.jpg)
+
+Again, using the windows from Ravensbourne's building, we can see a face here. In this case with a much bigger mouth than the one above but they share the same problem. They don't have a nose =( .
+
+![fifth image](IMG_0094.jpg)
 
 
