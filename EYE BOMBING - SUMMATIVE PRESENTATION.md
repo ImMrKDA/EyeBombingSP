@@ -33,7 +33,7 @@ The art student might look at the colour and the shapes, while the business stud
 
 Here we've got an example: 
 
-![old couple](Screen Shot 2016-11-30 at 21.54.09.png)
+![old couple](Screen Shot 2016-11-30 at 21.54.09.png) (Screen Shot 2016-11-30 at 21.53.14.png)
 
 Some people can see things that other people can't see in this picture and viceversa. This is what I mean: 
 
@@ -41,6 +41,6 @@ Some people can see things that other people can't see in this picture and vicev
 
 Some people might see first a curtain, other people might see first a man playing the guitar, etc. Here's another example of what people could also see in this image: 
 
-!(old couple3)[Screen Shot 2016-11-30 at 21.53.14.png] 
+![old couple3](Screen Shot 2016-11-30 at 21.54.09.png) 
 
 
