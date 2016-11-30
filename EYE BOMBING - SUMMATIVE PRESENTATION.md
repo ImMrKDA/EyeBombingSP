@@ -9,14 +9,13 @@ My personal definition would be that Eyebombing is the art of being able to visu
 With that being said, I'm going to include in this document two visual perception principles that I had to do research on with two classmates. I want to talk about this because I find it quite interesting and it helped me a lot when I was working on taking pictures for the Eyeboming project.  
 
 **Two visual perception principles:** 
-* Similarity.  
-Smilarity is the state or fact of being similiar, a similar feature or aspect. 
+* **Similarity**: It is the state or fact of being similiar. To see something that has a similar feature or aspect than another object. 
 
 Here we've got an example: 
 
 ![apples example similarity](Screen Shot 2016-11-30 at 21.29.40.png) 
 
-For example all of these fruits are apples which is there similarity but they are all different at the same time.
+For example all of these fruits are apples which there is similarity between them but they are all different at the same time.
 
 We tend to group things together based on similar aspects ( look, sound, texture, taste, etc.) Grouping fruits by what type of fruit they are, their size, their shape and their colour.
 
