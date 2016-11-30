@@ -1,6 +1,6 @@
 #EYEBOMBING - SUMMATIVE PRESENTATION 
 
-To start this document, I'd like first to call out what Eyebombing is. Here we've got the definition of Eyebombing by their oficial website www.eyebombing.com.
+To start this document, I'd like first to call out what Eyebombing is. Here we've got the definition of Eyebombing by their official website www.eyebombing.com.
 
 > "**Eyebombing** is the art of sticking “googly eyes” onto an inanimate object in the public sphere, in a way that cleverly lends the object the appearance of a living creature. Ultimately the goal is to humanize the streets, and bring sunshine to people passing by."  
 
