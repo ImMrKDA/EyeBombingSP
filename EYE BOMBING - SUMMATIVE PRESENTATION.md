@@ -24,3 +24,21 @@ Here we've got another example:
 ![drawn lines example of similarity](Screen Shot 2016-11-30 at 21.35.40.png) 
 
 Everything in life is ultimately similar but not really the same. If we look at the piture above, the second line will never look exactly the same as the first line, but for our eyes they are quite similar. 
+
+* **Past experiences**: The way a person sees something could change depending of their past experiences.  
+A past experience could influence how we perceive what we see. For example, an art student would have different thoughts than a business student.  
+The art student might look at the colour and the shapes, while the business student might look at how that apple tree could potentially become a commission.  
+
+Here we've got an example: 
+
+![old couple](Screen Shot 2016-11-30 at 21.54.09.png)
+
+Some people can see things that other people can't see in this picture and viceversa. This is what I mean: 
+
+![old couple 2](Screen Shot 2016-11-30 at 21.53.33.png)
+
+Some people might see first a curtain, other people might see first a man playing the guitar, etc. Here's another example of what people could also see in this image: 
+
+!(old couple3)[Screen Shot 2016-11-30 at 21.53.14.png] 
+
+
