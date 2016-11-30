@@ -6,10 +6,10 @@ To start this document, I'd like first to call out what Eyebombing is. Here we'v
 
 My personal definition would be that Eyebombing is the art of being able to visualise a face or facial features in an animated object.  
 
-With that being said, I'm going to include in this document two visual perception principles that I had to do research on with two classmates. I want to talk about this helped me a lot when I was working on taking pictures for the Eyeboming project.  
+With that being said, I'm going to include in this document two visual perception principles that I had to do research on with two classmates. I want to talk about this because I find it quite interesting and it helped me a lot when I was working on taking pictures for the Eyeboming project.  
 
 **Two visual perception principles:** 
-* Similarity. 
+* Similarity.  
 Smilarity is the state or fact of being similiar, a similar feature or aspect. 
 
 Here we've got an example: 
