@@ -43,6 +43,9 @@ Some people might see first a curtain, other people might see first a man playin
 
 ![old couple3](Screen Shot 2016-11-30 at 21.54.09.png) 
 
+**Hey, I'm just here to fill out space, keep reading!**
+![cat fail gif](<iframe src="//giphy.com/embed/bU6GKBpWaJ4tO" width="480" height="330" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="http://giphy.com/gifs/cat-fail-jumping-bU6GKBpWaJ4tO">via GIPHY</a></p>) 
+
 Now it's time to show the Eyebombing pictures and I've taken for this project. 
 
 The first image is meant to be a face. The eyes are the holes of the table that we use in class to put our cables through them so we can reach the plug in the floor and charge our laptops. The nose is a black plug that is facing  up so it gives the sense of being a nose. The mouth is a simple piece of paper, it gives the sense of being an open mouth or a big mouth.   
