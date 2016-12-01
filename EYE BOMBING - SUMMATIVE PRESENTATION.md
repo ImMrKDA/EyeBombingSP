@@ -86,7 +86,7 @@ Now it's time to show the Eyebombing pictures that I've taken for this project:
 
 * This is a quite similar image to one that we'll be seeing in a moment. I guess we can clearly see the two eyes here being represented by the two cable cars. The mouth and the nose are not really accurate but we could interpret the big amount of metal bar sticks as a huge nose and the floor of the platform that is holding this monument up as the mouth. 
 
-![tenth](IMG_0105.jpg)
+![tenth](8.jpg)
 
 * We have arrived to my second favourite picture. You can see a face here but depending on your thoughts you will give to this face a nose or a mouth. In my case I will give it a little mouth, the nose can be interpreted by the thick line. The eyes are the two stickers that represent the "Warning" or "Danger". The reason this is my second favourite picture is because we can see a face there because of the angle of the shot. If I would've taken the picture looking at the small door from the front, we wouldn't be able to see the same face. It would be a different thing and it won't probably look as a face. 
 
