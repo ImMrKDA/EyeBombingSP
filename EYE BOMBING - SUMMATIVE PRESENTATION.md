@@ -62,7 +62,7 @@ Now it's time to show the Eyebombing pictures that I've taken for this project:
 
 * Now we've got an image that is made by three windows from the entrance wall of Ravensbourne. I think it's quite easy to see a face here, two big eyes with an open mouth and again with no nose. 
 
-![fourth image eyebombing](IMG_0091.jpg)
+![fourth image eyebombing](3.jpg)
 
 * Again, using the windows from Ravensbourne's building, we can see a face here. In this case with a much bigger mouth than the one above but they share the same problem. They don't have a nose =( .
 
