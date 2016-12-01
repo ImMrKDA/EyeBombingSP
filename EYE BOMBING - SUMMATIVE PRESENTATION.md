@@ -90,7 +90,7 @@ Now it's time to show the Eyebombing pictures that I've taken for this project:
 
 * We have arrived to my second favourite picture. You can see a face here but depending on your thoughts you will give to this face a nose or a mouth. In my case I will give it a little mouth, the nose can be interpreted by the thick line. The eyes are the two stickers that represent the "Warning" or "Danger". The reason this is my second favourite picture is because we can see a face there because of the angle of the shot. If I would've taken the picture looking at the small door from the front, we wouldn't be able to see the same face. It would be a different thing and it won't probably look as a face. 
 
-![eleventh picture](IMG_0097.jpg)
+![eleventh picture](11.jpg)
 
 * Last but not least, my favourite picture. We can see a face here with all the elements; eyes, nose and mouth. The eyes being the two cable cars, the nose being the huge post and the mouth being the long and thick cable. Why do I love this picture? Simply because this isn't a static image. As you can guess, the cable cars are always moving, so to get the right shot and get an image like this one you have to wait for the right moment and that's what I did. 
 
