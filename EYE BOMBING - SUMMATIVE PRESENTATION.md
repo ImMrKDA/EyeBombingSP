@@ -54,7 +54,7 @@ Now it's time to show the Eyebombing pictures that I've taken for this project:
 
 * The second image gives an aspect of a old man (well, that's what I think). Being the eyes the two locks and the mouth is supposed to be very small or hidden by the _moustache_ , which is interpretated by the plastic. 
 
-![second image eyebombing](IMG_0089.jpg) 
+![second image eyebombing](2.jpg) 
 
 * Here we've got a case where is probably harder to identify the elements of a face than the other two pictures above. We can clearly see the eyes that are represented by the two blue stickers that have got the message "Fire Door Keep Locked" in them. Now, is the lock below the mouth or the nose? I actually don't know, I guess you can interpret it as you wish. In my case I would say it's a really small mouth which will make this face with no nose. Such a shame. 
 
