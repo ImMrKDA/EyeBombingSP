@@ -50,7 +50,7 @@ Now it's time to show the Eyebombing pictures that I've taken for this project:
 
 * The first image is meant to be a face. The eyes are the holes of the table that we use in class to put our cables through them so we can reach the plug in the floor and charge our laptops. The nose is a black plug that is facing  up so it gives the sense of being a nose. The mouth is a simple piece of paper, it gives the sense of being an open mouth or a big mouth.   
 
-![first image eyebombing](IMG_0088.jpg)
+![first image eyebombing](1.jpg)
 
 * The second image gives an aspect of a old man (well, that's what I think). Being the eyes the two locks and the mouth is supposed to be very small or hidden by the _moustache_ , which is interpretated by the plastic. 
 
